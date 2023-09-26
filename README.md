@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DLWTiffany
-- 👀 I’m interested in ...Website Seo and Coding 
+- 👀 I’m interested in ...Website SEO and Coding 
 - 🌱 I’m currently learning ...that I am lost
 - 💞️ I’m looking to collaborate on ...My website 
 - 📫 How to reach me ... tcrum@doinglifewithtiffany.com
